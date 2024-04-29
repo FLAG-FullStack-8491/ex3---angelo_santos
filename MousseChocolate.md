@@ -8,6 +8,8 @@
 - 1 colher de chá de essência de baunilha
 - 200ml de creme de leite fresco
 
+- CONFLICT - ARRANJA ISTO POR FAVOR
+
 ## Instruções:
 1. Derreta o chocolate em banho-maria ou no micro-ondas, mexendo ocasionalmente até ficar completamente derretido e liso. Reserve para esfriar um pouco.
 2. Separe as gemas das claras dos ovos. Bata as claras em neve com uma pitada de sal até ficarem firmes.
