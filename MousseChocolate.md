@@ -19,3 +19,5 @@
 8. Distribua a mousse em taças individuais ou em um recipiente grande.
 9. Leve à geladeira por pelo menos 4 horas, ou até que a mousse esteja firme.
 10. Sirva gelado, decorado com raspas de chocolate ou frutas frescas, se desejar.
+
+[Podes ver aqui como fazer.](https://saboreiaavida.nestle.pt/cozinhar/receita/mousse-de-chocolate)
